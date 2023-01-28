@@ -10,4 +10,4 @@
 - ⚡ Fun fact: ...
 
 
-![snake gif](https://github.com/padi27/padi27/blob/output/github-contribution-grid-snake.svg)
+![snake gif](https://github.com/padi27/padi27/blob/main/github-contribution-grid-snake.svg)

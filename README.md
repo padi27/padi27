@@ -5,4 +5,4 @@
 - 👩🏼‍🎓 College of Digital Design
 - 💜 Currently studying Korean
 - 💬 I like to talk about games
-- 📚 Fluent in Portuguese (BR) and English (US).
+- 📚 Fluent in English (US)

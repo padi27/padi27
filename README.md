@@ -2,7 +2,7 @@
 
 - 🧝🏼‍♀️ Pronouns: she/her
 - 🌊 I'm from Brazil!🌴
-- 👩🏼‍🎓 College of Digital Design
+- 👩🏼‍🎓 College of Graphic Design
 - 💜 Currently studying Korean
-- 💬 I like to talk about games
-- 📚 Fluent in English (US)
+- 💬 Gaming is my passion ♥
+- 📚 Fluent in English
